@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Be the Change you wish to see in the world. Mahatma Gandhi
 
-I'm glad you are here. I plan to talk about ...
+In today's episode we are talking about, What?
